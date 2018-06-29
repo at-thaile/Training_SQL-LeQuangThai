@@ -1,2 +1,2 @@
 
-[Anh](https://i.imgur.com/nTfxEpm.png)
+https://imgur.com/nTfxEpm
